@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @L3onard0Ram0s. From 🇧🇷
+- 👀 I'm interested in learning about development
+- 🌱 I’m currently starting college
+- 💞️ I'm looking for an internship in ADS
+- 📫 How to reach me for email: leonardoramossscm@gmail.com
